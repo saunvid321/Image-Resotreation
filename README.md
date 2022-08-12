@@ -35,5 +35,5 @@ In any case if you need help feel free to contact me anytime
 
  - saunvidganbavale100@gmail.com
 
- - https://www.linkedin.com/in/saunvid-ganbavale-712b9a175/
+  - [LinkedIn](https://www.linkedin.com/in/saunvid-ganbavale-712b9a175/)
 
